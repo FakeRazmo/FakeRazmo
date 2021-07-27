@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @FakeRazmo
+- 🌱 I’m currently learning 
